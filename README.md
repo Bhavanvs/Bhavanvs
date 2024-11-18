@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bhavanbavo1721@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/66157db6e773b643eb5e1eb3](https://app.luminpdf.com/viewer/66157db6e773b643eb5e1eb3)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1JOaHAhlX7uIURAPiUNPBGH-tUYhqJZdxyaGVGmkfrnc/edit?usp=sharing](https://docs.google.com/document/d/1JOaHAhlX7uIURAPiUNPBGH-tUYhqJZdxyaGVGmkfrnc/edit?usp=sharing)
 
 - ⚡ Fun fact **Did you know that data analysis can sometimes uncover surprising insights? Here's a fun fact related to data: In 2013, Target's data analysis algorithms were so accurate that they could predict when a customer was pregnant based on their purchasing habits. One father famously discovered his teenage daughter's pregnancy through Target's coupons for baby products before she had even told him!**
 
